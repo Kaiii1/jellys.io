@@ -1,2 +1,2 @@
-# kaiii1.github.io
+# jellys.io
 Jellys NFT
